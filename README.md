@@ -1,1 +1,1 @@
-# egieLCL.github.io
+# EgieLCL.github.io
